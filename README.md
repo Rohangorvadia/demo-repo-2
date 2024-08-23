@@ -6,5 +6,5 @@ jejfe
 
 fe
 e
-hehe has dele rinkiya ke papa hehe hS DELE
+ DELE
 nhviehije
